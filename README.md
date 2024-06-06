@@ -17,7 +17,7 @@ Evoked! This is a much higher output Pump for $20 more
 ### 2 Piston Inline
 - $102 [Air Compressor Pump Motor 3HP Aluminum 160PSI 12CFM 2 Cylinder 1 Stage 1300/min](https://www.ebay.com/itm/284995441116)
 - $92 [3HP Air Compressor Pump Head Aluminum 160PSI 12CFM 2 Cylinder 1 Stage 1300/min](https://www.ebay.com/itm/165616801958)
-
+- $89.99 [3HP Air Compressor Pump Head Aluminum 160PSI 12CFM 2 Cylinder 1 Stage 1300/min](https://www.ebay.com/itm/165616801958)
 
 Cheaper:
 - 6.2 SCFM @ 40 PSI, 5.3 SCFM @ 90 PSI https://www.harborfreight.com/37-hp-v-style-single-stage-cast-iron-air-compressor-pump-59193.html
