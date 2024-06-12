@@ -1,0 +1,3 @@
+- [Reusing an air conditioner compressor](https://youtu.be/-V4hXG0PX7w)
+- [This air compressor will fail](https://youtu.be/OIs2r16MDa8)
+- [I turn Fridge Compressor into a Air Compressor](https://youtu.be/LBASLosdVoM)
